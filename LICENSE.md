@@ -1,4 +1,4 @@
-#  
+#  blue lock rivals premium Scripts is the best blue lock rivals Script, featuring auto-collect and auto-upgrade. Safe and powerful for all your needs.
 
 
 
